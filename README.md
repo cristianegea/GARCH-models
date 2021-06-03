@@ -1,0 +1,1 @@
+# artigo_volatilidade_realizada
